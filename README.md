@@ -3,7 +3,7 @@
 **QA & Test Automation Engineer · Data & Infrastructure background**
 
 📍 Yerevan, Armenia  |  🌍 Open to remote work & relocation to Europe
-🔗 [LinkedIn]([https://www.linkedin.com/in/mehrnaz-marouf/])  |  🌐 [mehrnazmarouf.com](https://mehrnazmarouf.com)
+🔗 [LinkedIn](https://www.linkedin.com/in/mehrnaz-marouf/)  |  🌐 [mehrnazmarouf.com](https://mehrnazmarouf.com)
 
 ---
 
